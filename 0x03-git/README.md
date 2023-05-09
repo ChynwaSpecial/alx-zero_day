@@ -1,1 +1,1 @@
-Coding is cool
+Coding is really nice and fun
